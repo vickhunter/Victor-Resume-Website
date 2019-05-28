@@ -1,1 +1,0 @@
-# Resume(https://victormotricala.com)
